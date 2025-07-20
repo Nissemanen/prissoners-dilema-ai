@@ -1,2 +1,1 @@
-# prissoners-dilema-ai
-the shitiest ai to ever been made
+DONT READ ME! IM SENSITIVE!!!
